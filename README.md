@@ -1,0 +1,3 @@
+- hi I'm Dillza, she/her or they/them i guess
+- SS13 😍
+- glory to the syndicate 
